@@ -1,4 +1,4 @@
-### Oi! Eu sou a Juliana.
+### Oi! Eu sou a Juliana ✨
 <h1>
 </h1>
 👩🏻‍🔬 Química e estudante de Análise e Desenvolvimento de Sistemas.
